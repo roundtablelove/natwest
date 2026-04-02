@@ -11,25 +11,25 @@
 
 ## 1. The Refusal
 
-Four days out of HMP Edinburgh after 10 days on remand for false charges laid by
-corrupt pigs on orders from a psychopathic gangster princess who thinks she's a
-queen but behaves like a rabid toddler. She was angry after Art rejected her
-attempts to make him her slave and escaped from Edinburgh to his ancestral home
-at Sterling. Later, she made an attempt on his life, but that's a whole different
-story - she's not even the first woman who tried to try to kill him.
+> Four days out of HMP Edinburgh after 10 days on remand for false charges laid
+> by corrupt pigs on orders from a psychopathic gangster princess who thinks
+> she's a queen but behaves like a rabid toddler. She was angry after Art
+> rejected her attempt to make him her slave and escaped from Edinburgh to his
+> ancestral home at Sterling. Later, she made an attempt on his life, but that's
+> a whole different story. She's not the first woman to try.
 
 Wallet lost or stolen by Feds Scotæ. Passport for ID. Art walked into the
-NatWest branch opposite his flat and asked for some cash. Revolutionary stuff.
+NatWest branch opposite his flat and asked for some cash.
 
 The amount exceeded whatever limit makes a counter clerk nervous, so he had to
 see the manager. Art was still mostly lower mind — raw, no persona layer, no
 customer-service smile. He sat down with the manager.
 
 The manager looked at a man fresh out of gaol, unmasked, operating without a
-filter, and felt something he did not like deep inside. He, being a Big Man of
-Babylon, then attempted to repair his fragile ego by asserting dominance with
-the dickslap manoeuvre (denying Art his own cash) - this failed because he
-lacked the necessary biological hardware.
+filter, and felt something he did not like. He, being a Big Man of Babylon, then
+attempted to repair his fragile ego by asserting dominance with the dickslap
+manoeuvre (denying Art his own cash) - the dickslap failed because he lacked the
+necessary biological hardware.
 
 Art showed the barest hint of a tooth in response and the manager shat himself,
 then ran off to hide in his office, in his own filth, shaking and crying (Art
@@ -38,12 +38,12 @@ ass pussy ass manager saw the Real™ him, and realised that his dickless dicksl
 had provoked anger.
 
 The manager's threat assessment was `capability + anger == kinetics` - an
-obvious logic error. Art knows that the he was terrified, but that's on him - *u
-fuk wit da bull, u get da hornz*. He didn't get the hornz. Art showed the tip of
-a tooth and called him an arsehole. Art was being soft because he didn't want to
-terrify the man, but the man terrified himself. Art's fault? Maybe a little, but
-he had just spent 10 days locked up with the animals, and his threat response
-was out of whack.
+obvious logic error. Art knows that he was terrified, but that's on him - *u fuk
+wit da bull, u get da hornz*. He didn't even get the hornz. Art showed the tip
+of a tooth and called him an arsehole. Art was being soft because he didn't want
+to terrify the man, but the man terrified himself. Art's fault? Maybe a little,
+but he had just spent 10 days locked up with the animals, and his threat
+response was out of whack.
 
 A lifelong customer was refused access to his own account, with valid
 government-issued ID, at the branch next to his home.
@@ -68,7 +68,7 @@ Art pulled out his phone and started recording.
 >
 > **[00:17] Fake Rude Bwoy to Art** Are you filming me?
 >
-> **[00:19] Art to Staff Member** Of course I am.
+> **[00:19] Art to Fake Rude Bwoy** Of course I am.
 >
 > **[00:19] Art to Staff** Right, I'll see you guys.
 
@@ -91,7 +91,8 @@ The one staff member who does speak asks "are you filming me?" in a bone parody
 of rude bwoy tone, to which Art now replies:
 
 > ur not street blud, ur a bitch 4 babylon. bet u got robbed sumin chronix as a
-> yoot. u a pussyhole, a bare dutty pum pum. u know where i live. cum visit.
+> yoot. u a pussyhole, a bare dutty pum pum. u know where i live. bet u don cum
+> visit.
 
 At no point does he raise his voice to a shout, make a threat, or move toward
 anyone. He leaves under his own steam.
@@ -122,11 +123,11 @@ The Filth were at Art's door five minutes later.
 
 Five minutes. In Brixton. On a Tuesday morning. The call was made, dispatched,
 and officers were en route within two minutes. You could get stabbed on
-Coldharbour Lane and wait much longer. You could get shot on Angel Town and the
+Coldharbour Lane and wait an hour. You could get shot on Angel Town and the
 response time would be measured in coffee breaks. But a bank manager whose
 oh-so-fragile ego got bruised by a man who wanted his own money? Two minutes to
 dispatch. Priority one. Blue lights. A King's ransom in taxpayer-funded rapid
-response for a customer who had already gone home to make an omelette.
+response for a customer who had gone home to make an omelette.
 
 There was no reason for the 999 call. The situation was over. The "threat" was
 at home grating cheese. NatWest got a priority response that actual victims of
@@ -164,8 +165,8 @@ Soon after the incident Art moved to another bank. He took all his cash plus a
 
 He took the £4k as partial compensation for the refusal of service and the
 illegal deployment of street dogs. [Civil action](complaint-natwest.eml) is
-pending. He acknowledges that
-damages sought must be net of this figure. He will NOT pay interest.
+pending. He acknowledges that damages sought must be net of this figure. He will
+NOT pay interest.
 
 NatWest have sent debt collectors — who are also cockless. They send letters.
 They make phone calls. They come to his door and attempt to slap down phantom
@@ -183,5 +184,5 @@ CHECK:  FAIL
 ```
 
 The feds are not available to everyone. NatWest gets two minutes to dispatch
-because NatWest is Babylon. One branch of Babylon calls another and the dogs
-come running.
+because NatWest is Babylon. One branch of calls another and the dogs come
+running.

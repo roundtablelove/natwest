@@ -11,28 +11,41 @@
 
 ## 1. The Refusal
 
-Four days out of HMP Edinburgh after being remanded for 10 days on false
-charges. Wallet lost or stolen by Feds Scotæ. Passport for ID. Art walked into
-the NatWest branch opposite his flat — the bank that had held his money since he
-was a child — and asked for some cash. Revolutionary stuff.
+Four days out of HMP Edinburgh after 10 days on remand for false charges laid by
+corrupt pigs on orders from a psychopathic gangster princess who thinks she's a
+queen yet behaves like a rabid toddler. She was angry after Art rejected her
+attempts to make him her slave and escaped to his family seat in Sterling.
+Later, she made an attempt on his life, but that's a different story.
+
+Wallet lost or stolen by Feds Scotæ. Passport for ID. Art walked into the
+NatWest branch opposite his flat and asked for some cash. Revolutionary stuff.
 
 The amount exceeded whatever limit makes a counter clerk nervous, so he had to
 see the manager. Art was still mostly lower mind — raw, no persona layer, no
 customer-service smile. He sat down with the manager.
 
 The manager looked at a man fresh out of gaol, unmasked, operating without a
-filter, and felt something he did not enjoy feeling. The only power available to
-him was the word "no" — so he attempted the dickslap manoeuvre without being in
-possession of the necessary equipment. A lifelong customer was refused access to
-his own account, with valid government-issued ID, at the branch next to his
-home.
+filter, and felt something he did not like - inadequate, small. He then
+attempted to assert dominance with the dickslap manoeuvre (denying Art his own
+cash), but lacked the necessary biological hardware.
 
 Art showed the barest hint of a tooth in response and the manager shat himself,
-then ran off to hide in his office, shaking and crying (Art guesses), in his own
-filth. Art knows that he was terrified, but that's on him, *u fuk wit da bull, u
-get da hornz*. Art made no threat, but the mask was off, and without it the
-bitch ass pussy ass manager saw the Real™ him. The realisation that he had
-angered Art made him fear for his life.
+then ran off to hide in his office, in his own filth, shaking and crying (Art
+presumes). Art made no threat, but the mask was off, and without it the bitch
+ass pussy ass manager saw the Real™ him. He realised that his dickless dickslap
+had provoked anger.
+
+Wetware in low-tier servants of Babylon is notoriously poor. The manager's
+threat assessment was `capability + anger == kinetics` - an obvious logic
+error. Art knows that the he was terrified, but that's on him - *u fuk wit
+da bull, u get da hornz*. He didn't get the hornz. Art showed the tip of a tooth
+and called him an arsehole. Art was being soft because he didn't want to terrify
+the bitch, but the bitch was terrified nonetheless. Art's fault? Maybe a little,
+but he had just spent 10 days locked up with the animals, and his threat
+response was out of whack.
+
+A lifelong customer was refused access to his own account, with valid
+government-issued ID, at the branch next to his home.
 
 Art pulled out his phone and started recording.
 
@@ -54,7 +67,9 @@ Art pulled out his phone and started recording.
 >
 > **[00:17] Same Staff Member to Art** Are you filming me?
 >
-> **[00:19]** Of course I am. Right, I'll see you guys.
+> **[00:19] Art to Staff Member** Of course I am.
+>
+> **[00:19] Art to Staff** Right, I'll see you guys.
 
 **Stills:**
 
@@ -71,13 +86,13 @@ the manager, who deserves it. From [00:07] the anger is gone. Art is speaking to
 the other staff calmly, clearly, making a record. He is 100% in control. He
 explicitly states on camera that he has not been aggressive. None of the staff
 engage with his point — they know the boss will review CCTV later and they are
-not going to be caught on tape agreeing with the customer.
+not going to be caught agreeing with the customer.
 
-The one staff member who does speak asks "are you filming me?" in a fake rude
-bwoy tone, to which Art now replies:
+The one staff member who does speak asks "are you filming me?" in a pathetic
+parody of rude bwoy tone, to which Art now replies:
 
-> ur not street blud, ur a bitch 4 babylon, bet u got robbed sumin chronix as a
-> yoot.
+> ur not street blud, ur a bitch 4 babylon. bet u got robbed sumin chronix as a
+> yoot. u a pusshole, a bare dutty pum pum. u know where i live. cum visit.
 
 At no point does he raise his voice to a shout, make a threat, or move toward
 anyone. He leaves under his own steam.

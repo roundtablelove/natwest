@@ -73,13 +73,9 @@ Art pulled out his phone and started recording.
 
 **Stills:**
 
-| [00:00] Manager visible | [00:07] Manager gone |
+| [00:01] The Manager | [00:16] The Fake Rude Bwoy |
 | :---: | :---: |
-| ![Manager visible](manager-visible.png) | ![Manager gone](manager-gone.png) |
-
-| [00:15] Staff area | [00:20] Art leaving |
-| :---: | :---: |
-| ![Staff area](staff-area.png) | ![Art leaving](art-leaving.png) |
+| ![The Manager](manager.png) | ![Fake Rude Bwoy](fake-rude-bwoy.png) |
 
 **Tone:** Note the switch. The first line is spoken with anger — addressed to
 the manager, who deserves it. From [00:07] the anger is gone. Art is speaking to

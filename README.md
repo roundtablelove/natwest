@@ -14,7 +14,7 @@
 > she's a queen but behaves like a rabid toddler. She was angry after Art
 > rejected her attempt to make him her slave and escaped from Edinburgh to his
 > ancestral home at Sterling. Later, she made an attempt on his life, but that's
-> a whole different story. She's not the first woman to try.
+> a whole different story. She's not the first woman to try this on Art. 
 
 ## 1. The Refusal
 

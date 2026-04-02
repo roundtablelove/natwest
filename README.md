@@ -5,8 +5,8 @@
      Type: Babylon (financial)
      Date: Tuesday 21 September 2021, 08:59:56 UTC
  Location: NatWest, Brixton branch (next to Art's flat)
-  Summary: Lifelong customer denied his own money. Bank calls 999 after
-           he's already gone home. Police arrive in 5 minutes.
+  Summary: Lifelong customer denied his own money. Bank calls 999
+           after he's already gone home. Police arrive in 5 minutes.
 ```
 
 > Four days out of HMP Edinburgh after 10 days on remand for false charges laid

@@ -152,10 +152,10 @@ Under English law:
 The 999 call recording is requested via Met SAR. The recording will show what
 NatWest actually told police. The video shows what actually happened. The
 comparison writes itself. NatWest's legal team can explain the discrepancy to a
-judge, if they can find one in Brixton who hasn't been stabbed while waiting for
-a police response.
+judge, if they can find one in South London who hasn't been stabbed while
+waiting for a police response.
 
-The NatWest SAR will also reveal whatever notes were added to Art's account
+The NatWest SAR will also reveal the notes that were added to Art's account
 after the incident. These will be informative.
 
 ### The £4k

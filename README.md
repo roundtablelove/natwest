@@ -60,12 +60,12 @@ Art pulled out his phone and started recording.
 > take my money out? Cuz this guy... if you hear that. I have not been
 > aggressive. I've done nothing. I just want my money. You gonna help me?
 >
-> **[00:12] Staff Member to Art** Unintelligible.
+> **[00:12] Fake Rude Bwoy to Art** [Unintelligible].
 >
 > **[00:15] Art to Staff** So the manager is [half laugh] not letting me take
 > the money out and you guys agree with that?
 >
-> **[00:17] Same Staff Member to Art** Are you filming me?
+> **[00:17] Fake Rude Bwoy to Art** Are you filming me?
 >
 > **[00:19] Art to Staff Member** Of course I am.
 >
@@ -73,9 +73,13 @@ Art pulled out his phone and started recording.
 
 **Stills:**
 
-| [00:01] The Manager | [00:16] The Fake Rude Bwoy |
-| :---: | :---: |
-| ![The Manager](manager.png) | ![Fake Rude Bwoy](fake-rude-bwoy.png) |
+| [00:01] The Manager | [00:02] Fleeing | [00:02] Gone |
+| :---: | :---: | :---: |
+| ![The Manager](manager.png) | ![Fleeing](manager-fleeing-1.png) | ![Gone](manager-fleeing-2.png) |
+
+| [00:16] The Fake Rude Bwoy |
+| :---: |
+| ![Fake Rude Bwoy](fake-rude-bwoy.png) |
 
 **Tone:** Note the switch. The first line is spoken with anger — addressed to
 the manager, who deserves it. From [00:07] the anger is gone. Art is speaking to

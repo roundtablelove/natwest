@@ -73,13 +73,11 @@ Art pulled out his phone and started recording.
 
 **Stills:**
 
-| [00:01] The Manager | [00:02] Fleeing | [00:02] Gone |
-| :---: | :---: | :---: |
-| ![The Manager](manager.png) | ![Fleeing](manager-fleeing-1.png) | ![Gone](manager-fleeing-2.png) |
-
-| [00:16] The Fake Rude Bwoy |
-| :---: |
-| ![Fake Rude Bwoy](fake-rude-bwoy.png) |
+| [00:01] The Manager | [00:02] Fleeing |
+| :---: | :---: |
+| ![The Manager](manager.png) | ![Fleeing](manager-fleeing-1.png) |
+| **[00:02] Gone** | **[00:16] The Fake Rude Bwoy** |
+| ![Gone](manager-fleeing-2.png) | ![Fake Rude Bwoy](fake-rude-bwoy.png) |
 
 **Tone:** Note the switch. The first line is spoken with anger — addressed to
 the manager, who deserves it. From [00:07] the anger is gone. Art is speaking to

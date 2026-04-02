@@ -39,8 +39,8 @@ Wetware in low-tier servants of Babylon is notoriously poor. The manager's
 threat assessment was `capability + anger == kinetics` - an obvious logic
 error. Art knows that the he was terrified, but that's on him - *u fuk wit
 da bull, u get da hornz*. He didn't get the hornz. Art showed the tip of a tooth
-and called him an arsehole. Art was being soft because he didn't want to terrify
-the bitch, but the bitch was terrified nonetheless. Art's fault? Maybe a little,
+and called him an arsehole. Art was being soft because he didn't want to terrify the man, but the man
+terrified himself. Art's fault? Maybe a little,
 but he had just spent 10 days locked up with the animals, and his threat
 response was out of whack.
 

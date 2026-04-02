@@ -103,9 +103,9 @@ motion at the start of the video, Art is seated. That is the entire incident.
 
 On his way out Art stopped and talked to a woman (tall/black/hot) working
 downstairs. She couldn't verbally agree that her boss is a **pussyhole**. But
-she knows it, and Art knows she knows it. She also knows both her boss and Art
-fancy her. They chatted for a minute or two. She was not threatened — she is a
-Real™ woman so she can tell the difference between anger and threat. This
+she knows it, and Art knows she knows it. She also knows that both her boss and
+Art fancy her. They chatted for a minute or two. She was not threatened — she is
+a Real™ woman so she can tell the difference between anger and threat. This
 conversation is evidence. She needs to be identified. Art's interest is
 evidential. Also, he is currently unattached. Should she wish to discuss the
 matter further, his door is the black one next to Refill, top bell.
@@ -149,10 +149,10 @@ Under English law:
   Someone is **fucked**, and it's not Art.
 
 The 999 call recording is requested via [Met SAR](sar-metropolitan-police.eml).
-The recording will show what NatWest actually told police. The video shows what actually happened. The
-comparison writes itself. NatWest's legal team can explain the discrepancy to a
-judge, if they can find one in South London who hasn't been stabbed while
-waiting for a police response.
+The recording will show what NatWest actually told police. The video shows what
+actually happened. The comparison writes itself. NatWest's legal team can
+explain the discrepancy to a judge, if they can find one in South London who
+hasn't been stabbed while waiting for a police response.
 
 The [NatWest SAR](sar-natwest.eml) will also reveal the notes that were added
 to Art's account after the incident. These will be informative.
@@ -185,4 +185,3 @@ CHECK:  FAIL
 The feds are not available to everyone. NatWest gets two minutes to dispatch
 because NatWest is Babylon. One branch of Babylon calls another and the dogs
 come running.
-

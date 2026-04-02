@@ -204,13 +204,15 @@ plays. Art finds it hilarious.
 ## 3. Reality Check
 
 ```text
-INPUT:  Man asks bank for his own money. Bank says no. Man is angry. Man chats
-        to hot woman downstairs. Man leaves.
-OUTPUT: Manager calls 999 after the man has gone. Priority dispatch. Police at
-        his door in 5 minutes. The manager fancied her too. QED.
+INPUT:  Man asks bank for his own money. Bank says no. Man is angry.
+        Man chats to hot woman downstairs.
+        Man leaves.
+OUTPUT: Manager calls 999 after man has gone.
+        Priority dispatch. Police at his door in 5 minutes.
+        Manager fancied her too. QED.
 CHECK:  FAIL
 ```
 
 The feds are not available to everyone. NatWest gets two minutes to dispatch
-because NatWest is Babylon. One branch calls another and the request is given
-ultimate priority.
+because NatWest *is* Babylon. One branch calls another and the request is
+assigned Priority 1 by default.

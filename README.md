@@ -1,0 +1,183 @@
+# NatWest
+
+```text
+     Node: NatWest
+     Type: Babylon (financial)
+     Date: Tuesday 21 September 2021, 08:59:56 UTC
+ Location: NatWest, Brixton branch (next to Art's flat)
+  Summary: Lifelong customer denied his own money. Bank calls 999 after
+           he's already gone home. Police arrive in 5 minutes.
+```
+
+## 1. The Refusal
+
+Four days out of HMP Edinburgh after being remanded for 10 days on false
+charges. Wallet lost or stolen by Feds Scotæ. Passport for ID. Art walked into
+the NatWest branch opposite his flat — the bank that had held his money since he
+was a child — and asked for some cash. Revolutionary stuff.
+
+The amount exceeded whatever limit makes a counter clerk nervous, so he had to
+see the manager. Art was still mostly lower mind — raw, no persona layer, no
+customer-service smile. He sat down with the manager.
+
+The manager looked at a man fresh out of gaol, unmasked, operating without a
+filter, and felt something he did not enjoy feeling. The only power available to
+him was the word "no" — so he attempted the dickslap manoeuvre without being in
+possession of the necessary equipment. A lifelong customer was refused access to
+his own account, with valid government-issued ID, at the branch next to his
+home.
+
+Art showed the barest hint of a tooth in response and the manager shat himself,
+then ran off to hide in his office, shaking and crying (Art guesses), in his own
+filth. Art knows that he was terrified, but that's on him, *u fuk wit da bull, u
+get da hornz*. Art made no threat, but the mask was off, and without it the
+bitch ass pussy ass manager saw the Real™ him. The realisation that he had
+angered Art made him fear for his life.
+
+Art pulled out his phone and started recording.
+
+<video src="PXL_20210921_085956653.mp4" controls></video>
+
+**Transcript** (21 seconds, recorded on Art's phone):
+
+> **[00:00] Art to Manager** So you're saying you're not gonna let me take my
+> money out of my bank, are you? Wow, you really are an arsehole.
+>
+> **[00:07] Art to Staff** Ah... Excuse me. Are any of you guys gonna let me
+> take my money out? Cuz this guy... if you hear that. I have not been
+> aggressive. I've done nothing. I just want my money. You gonna help me?
+>
+> **[00:12] Staff Member to Art** Unintelligible.
+>
+> **[00:15] Art to Staff** So the manager is [half laugh] not letting me take
+> the money out and you guys agree with that?
+>
+> **[00:17] Same Staff Member to Art** Are you filming me?
+>
+> **[00:19]** Of course I am. Right, I'll see you guys.
+
+**Stills:**
+
+| [00:00] Manager visible | [00:07] Manager gone |
+| :---: | :---: |
+| ![Manager visible](manager-visible.png) | ![Manager gone](manager-gone.png) |
+
+| [00:15] Staff area | [00:20] Art leaving |
+| :---: | :---: |
+| ![Staff area](staff-area.png) | ![Art leaving](art-leaving.png) |
+
+**Tone:** Note the switch. The first line is spoken with anger — addressed to
+the manager, who deserves it. From [00:07] the anger is gone. Art is speaking to
+the other staff calmly, clearly, making a record. He is 100% in control. He
+explicitly states on camera that he has not been aggressive. None of the staff
+engage with his point — they know the boss will review CCTV later and they are
+not going to be caught on tape agreeing with the customer.
+
+The one staff member who does speak asks "are you filming me?" in a fake rude
+bwoy tone, to which Art now replies:
+
+> ur not street blud, ur a bitch 4 babylon, bet u got robbed sumin chronix as a
+> yoot.
+
+At no point does he raise his voice to a shout, make a threat, or move toward
+anyone. He leaves under his own steam.
+
+The video is 21 seconds long. A man asking for his own money. The first line is
+addressed to the manager, who is standing facing him. The rest is addressed to
+other staff — because the manager has run off. Note that the manager is in
+motion at the start of the video, Art is seated. That is the entire incident.
+
+On his way out Art stopped and talked to a woman (tall/black/hot) working
+downstairs. She can't verbally agree that her boss is a *pussyhole*. But she
+knows it, and Art knows she knows it. She also knows both her boss and Art fancy
+her. They chatted for a minute or two. She was not threatened — she is a Real™
+woman so she can tell the difference between anger and threat. This conversation
+is evidence. She needs to be identified. Art's interest is evidential. Also, he
+is currently unattached. Should she wish to discuss the matter further, his door
+is the black one next to Refill, top bell.
+
+He left the bank. Went home. Started making breakfast.
+
+## 2. The False Report
+
+After Art had left — gone, departed, no longer present. The manager called, or
+caused to be called, 999, then, presumably, went home to change his shit stained
+clothing.
+
+The Filth were at Art's door five minutes later.
+
+Five minutes. In Brixton. On a Tuesday morning. The call was made, dispatched,
+and officers were en route within two minutes. You could get stabbed on
+Coldharbour Lane and wait longer. You could get shot on Angel Town and the
+response time would be measured in coffee breaks. But a bank manager whose ego
+got bruised by a man who wanted his own money? Two minutes to dispatch. Priority
+one. Blue lights. A King's ransom in taxpayer-funded rapid response for a
+customer who had already gone home to make an omelette.
+
+There was no reason for the 999 call. The situation was over. The "threat" was
+at home grating cheese. NatWest got a priority response that actual victims of
+actual crime in Brixton do not get, for an incident that was not a crime,
+involving a man who was not present, because the manager has no cock.
+
+### False report liability
+
+NatWest reported a man who had already left the premises. No crime was
+committed. No threat was made. Being angry at a bank is not an offence.
+
+Under English law:
+
+- **Wasting police time (Criminal Law Act 1967, s.5(2))** — knowingly causing
+  wasteful deployment of police resources. Summary offence, up to 6 months. The
+  deployment was objectively wasteful. The man had gone home.
+- **Perverting the course of justice (Common Law)** — if (ha) the 999 call
+  contained fabricated or embellished claims about Art's behaviour. Indictable,
+  maximum life imprisonment. Art has the video. The pigs have the 999 recording.
+  Someone is **fucked**, and it's not Art.
+
+The 999 call recording is requested via Met SAR. The recording will show what
+NatWest actually told police. The video shows what actually happened. The
+comparison writes itself. NatWest's legal team can explain the discrepancy to a
+judge, if they can find one in Brixton who hasn't been stabbed while waiting for
+a police response.
+
+The NatWest SAR will also reveal whatever notes were added to Art's account
+after the incident. These will be informative.
+
+### The £4k
+
+Soon after the incident Art moved to another bank. He took all his cash plus a
+£4k overdraft.
+
+He took the £4k as partial compensation for the refusal of service and the
+illegal deployment of street dogs. Civil action is pending. He acknowledges that
+damages sought must be net of this figure. He will NOT pay interest.
+
+NatWest have sent debt collectors — who are also cockless. They send letters.
+They make phone calls. They come to his door and attempt power projection. Art
+finds it hilarious. They may have already taken him to court — he does not
+accept Babylon mail; all gets burned.
+
+## 3. Reality Check
+
+```text
+INPUT:  Man asks bank for his own money. Bank says no. Man is angry. Man chats
+        to hot woman downstairs. Man leaves.
+OUTPUT: Manager calls 999 after the man has gone. Priority dispatch. Police at
+        his door in 5 minutes. The manager fancied her too. QED.
+CHECK:  FAIL
+```
+
+The feds are not available to everyone. NatWest gets two minutes to dispatch
+because NatWest is Babylon. You could get stabbed in Brixton and wait an hour.
+But one branch of Babylon calls another and the dogs come running.
+
+**Reality does not pass this check.**
+
+## Cross-references
+
+- [NatWest SAR](sar-natwest.eml) — internal records, CCTV, 999 call
+  details requested
+- [NatWest Complaint](complaint-natwest.eml) — formal complaint, FOS
+  escalation if unresolved
+- [Met SAR](sar-metropolitan-police.eml) — 999 call recording
+  requested

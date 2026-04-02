@@ -9,14 +9,14 @@
            he's already gone home. Police arrive in 5 minutes.
 ```
 
-## 1. The Refusal
-
 > Four days out of HMP Edinburgh after 10 days on remand for false charges laid
 > by corrupt pigs on orders from a psychopathic gangster princess who thinks
 > she's a queen but behaves like a rabid toddler. She was angry after Art
 > rejected her attempt to make him her slave and escaped from Edinburgh to his
 > ancestral home at Sterling. Later, she made an attempt on his life, but that's
 > a whole different story. She's not the first woman to try.
+
+## 1. The Refusal
 
 Wallet lost or stolen by Feds Scotæ. Passport for ID. Art walked into the
 NatWest branch opposite his flat and asked for some cash.

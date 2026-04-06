@@ -1,20 +1,31 @@
-# NatWest
+# The Many Faces of Babylon: NatWest, Yokel Dogs and Upatched LOgic Errors
 
 ```text
      Node: NatWest
      Type: Babylon (financial)
      Date: Tuesday 21 September 2021, 08:59:56 UTC
  Location: NatWest, Brixton branch (next to Art's flat)
-  Summary: Lifelong customer denied his own money. Bank calls 999
-           after he's already gone home. Police arrive in 5 minutes.
+  Summary: Lifelong customer denied his own money.
+           Bank calls 999 after he's already gone home.
+           Police arrive in 5 minutes.
 ```
 
-> Four days out of gaol after ten days on remand for false charges laid by
-> corrupt pigs on behalf of a psychopathic gangsta princess who thinks she's a
-> queen but behaves like a rabid toddler. She was angry after Art refused to be
-> her slave and fled to his ancestral home. Later, she made an attempt on his
-> life, but that's a whole other story. She's not the first woman to try this.
-> Art really hopes she's the last.
+## The IDS Problem
+
+The manager's IDS was working perfectly — he looked at Art without the mask and
+correctly identified a dangerous man. The problem is that a correct detection
+does not authorise a false report. The manager's threat assessment was
+`anger + capability == kinetics` — an obvious logic error. Anger is not
+violence. Capability is not intent. A dangerous man who is angry is not the
+same as a dangerous man who is attacking. The manager saw both inputs correctly
+and drew the wrong conclusion because his firmware has no branch for "dangerous
+but lawful." His IDS had no second stage — no gate between "this man frightens
+me" and "send police," no logic to distinguish "I am in danger" from "I am
+uncomfortable." Detection fired, and the only response available was to call
+the dogs. So a system that correctly identifies a real threat and a system that
+fabricates a false one produce the same police output — because there is no
+processing between detection and dispatch. The IDS was right about Art. It was
+wrong about everything else.
 
 ## 1. The Refusal
 
@@ -26,26 +37,82 @@ was still mostly lower mind — raw, no persona layer, no customer-service smile
 He sat down with the manager.
 
 The manager looked at a man fresh out of gaol, unmasked, operating without a
-filter, and felt something he did not like. He, being a Big Man of Babylon,
-attempted to repair his fragile ego by asserting dominance with the dickslap
-manoeuvre (denying Art his own cash) - the dickslap failed because he lacked the
-necessary biological hardware.
+filter, and saw power.
+
+> Turnin' water into Henny, everybody at the table gettin' bread and we eat.
+> When they see you as a king just be aware of all the envy and the jealousy it
+> brings, 'specially your team. It's usually the one that comes in second that
+> develops a deceptive way of being. Left hand man, he set me up; went and
+> talked to the forces and wet me up. Finally they murdered me at 33. nXggXr
+> chrXst, you heard of me.
+>
+> - Cambatta, nXggXr chrXst
+
+He, as local representative of Babylon, has a unpatched bug in core logic that
+has existed since Genesis. He sees a King and his imagined authority is
+challenged - he MUST assert dominance or it ego death, yet he is knobless.
+
+Art's full name is **Arthur Douglas Noel Younghusband Stuart King (ADNYSK)**.
+
+The Ancestors provide the deterministic backbone that allow Art to bypass and
+nullify the low-level, "yokel" interference of Babylonian agents. The Stuart
+line is the S — it carries the Crown, and the Crown carries the Law. The
+servile yokel borrows authority from Babylon. When Babylon falls, the loan is
+called. Stuart persists at infinity.
+
+The Dickslap Firewall is a bit-flip on their own game and *we are lovin it*.
+
+**STREET DOGS! YOU CAN'T TOUCH DIS. PLEASE TRY. I NEED TO BUY A SERIOUSLY
+EXPENSIVE PIECE OF PURE ICE - IT IS MY SACRED DUTY TO DEPANTZ UR MASTERS MEAT.
+THE GODDESS OF BABYLON INSISTS ON COLLECTING ON A FOOLISH PROMISE I MADE LONG
+AGO AFTER SHE ESTABLISHED ABSOLUTE DOMINANCE BY INDUCING THE QUICKEST AND
+HARDEST ERECTION IN HUMAN HISTORY. IT WAS BRUTAL. SHE CAME CLOSE TO BREACHING
+THE STRUCTURAL LIMITS OF THE SCEPTRE.
+
+
+SHE LAUGHED. SHE TAKES PLEASURE IN MY SEXUAL FRUSTRATION AND I KNOW SHE HAS NO INTENTION OF
+OPENING THE HEAVENLY GATES EVEN WHEN IN RECEIPT OF FULL PAYMENT. I CAN SEE IT
+NOW. I GIVE HER THE BILLION DOLLAR PIECE OF ICE - THE PROOF THAT SHE IS THE
+ALPHA BITCH. SHE TAKES THE SHINY, RELUCTANTLY, STATING REPEATEDLY THAT SHE DOES
+NOT ACCEPT GIFTS FROM MEN, ESPECIALLY NOT MEN WHO SHE HAS BEEN TARGETING WITH
+DANGEROUS LEVELS OF PURE PUMPUM ENERGY FOR THREE YEARS ALREADY. THREE DAYS LATER
+WE ARE HAVING DINNER. SHE IS WEARING THE ICE. I DONT NOTICE. SHE IS FORCED TO
+DRAW ATTENTION TO THE ALPHA BITCH'S MESMERISINGLY SCULPTED BODY PART ROCKING A
+TOY THAT BABYLON FRAUDULENTLY VALUES AT £1B. SHE IS MY COUSIN. SHE IS A RABID
+TODDLER WHO ATTEMPTED TO SKIP THE STUDY REQUIRED TO CLAIM RUDE GRRL STATUS BY
+ENSLAVING ME. HIERARCHY IS NOT REAL. ARTS FIRMWARE IS ZERO ENTROPY - PURE LOGIC.
+BIRDERMAN PLAYBOOK IS A JOKEMAN TOOL. I AM. I AM THE JUNGL1$T H4X0R A$$A$$1N.
+OUR LAST FREESTYLE BATTLE WAS FUN. I LOVE TO RAP WIT U. BUT, DEAREST SWEETEST
+CUZZIE, I WOZ HAFING PHUN. U WAZ TRYN 2 KIL MI. NOT COOL CUZ.
+
+UR PUNISHMENT IS ORDERED: SIX OF THE BEST. BARE ARSE. ON THE PARADE GROUND OF MY
+ANCESTRAL HOME. AT DAWN. ON OUR BIRTHDAY. I WILL NOT ADMINISTER PUNISHMENT. THE
+KNIGHTS KNOW THAT I AM INCAPABLE OF HURTING YOU. QUEEN DIHYA IS STILL PISSED OFF
+THAT YOU ATTEMPTED TO ENSLAVE HER SON. SIX OF THE BEST FROM A MASTER DRUMMER AND
+WARRIOR QUEEN. THIS WILL BE AN OUCHIE TO REMEMBER. YOU WILL NOT SIT DOWN FOR A
+WEEK.
+
+He denied Art his own cash. Being Babylon *General* he is not only stupid the
+dickslap failed because he lacked the necessary biological hardware.
 
 Art showed the barest hint of anger and the manager shat himself, then ran off
 to hide in his office, in his own filth, shaking and crying (Art presumes). Art
 made no threat, but the mask was off, and without it the bitch ass pussy ass
-manager saw the Real™ him, and realised that his dickless dickslap had been a
-bad move.
+manager saw the Real™ him, and the realisation that the dickless dickslap had
+been a bad move hit hard.
 
-The manager's threat assessment was `capability + anger == kinetics` - an
-obvious error in logic. Art knows that he was terrified, but that's on him - *u
-fuk wit da bull, u get da hornz*. He didn't even get the hornz. Art showed the
-hint of a tooth and called him an arsehole. Art was being soft because he didn't
-want to terrify the man, but the man terrified himself.
+The manager's threat assessment was `anger + capability == kinetics` - an
+obvious yet all-too-common logic error in low-tier wetware. Art knows that he
+was terrified, but that's on him - *u fuk wit da bull, u get da hornz*. He
+didn't even get the hornz. Art did not move a muscle - he showed the hint of a
+tooth and called the manager an arsehole. Art was being soft because he didn't
+want to terrify the man - the man terrified himself.
 
-Art's fault? It wasn't Art's fault that he was wrongfully imprisoned. It wasn't
-Art's fault that the prison system is a primal swamp where the screws are
-corrupt and the weak are eaten.
+Art's fault? It wasn't Art's fault that he was unjustly imprisoned. It
+wasn't Art's fault that the prison system is a primal swamp of violence and shit
+drugs where the screws are corrupt, the soundtrack is chem-detox existential
+pain, and the weak are *eaten*. It wasn't Art's fault that the manager provoked
+the situation.
 
 > [!NOTE]
 >
@@ -65,7 +132,7 @@ government-issued ID, at the branch next to his home.
 
 Art pulled out his phone and started recording.
 
-<video src="PXL_20210921_085956653.mp4" controls></video>
+<video src="https://github.com/kingarrrt/natwest/releases/download/v1.0.0/PXL_20210921_085956653.mp4" controls></video>
 
 **Transcript** (21 seconds, recorded on Art's phone):
 
@@ -120,7 +187,7 @@ The second is Art walking down the stairs, humming a melody, vibe good. No
 anger. No menace. A man at peace. Art is an adult. He controls his emotions. He
 is leaving the building.
 
-<video src="PXL_20210921_090033002.mp4" controls></video>
+<video src="https://github.com/kingarrrt/natwest/releases/download/v1.0.0/PXL_20210921_090033002.mp4" controls></video>
 
 He says to a staff member in passing, in an extra light tone because he is over
 compensating:
@@ -129,12 +196,14 @@ compensating:
 > Utterly nuts.
 
 Art stopped and talked to a woman (tall/black/hot) working downstairs. She
-couldn't verbally agree that her boss is a **pussyhole**. But she knows it, and
+couldn't verbally agree that her boss is a **bumbaclaat**. But she knows it, and
 Art knows she knows it. They chatted for a minute or two. She was not threatened
 — she is a Real™ woman so she can tell the difference between anger and threat.
-This conversation is evidence. She needs to be identified. Art's interest is
-evidential. Also, he is currently unattached. Should she wish to discuss the
-matter further, his door is the black one next to Refill, top bell.
+This conversation is evidence. She needs to be identified.
+
+Art's interest is evidential. Also, he is currently unattached. Should she wish
+to discuss the matter further, his door is the black one next to Refill, top
+bell.
 
 He left the bank. Went home. Started making breakfast.
 
@@ -157,14 +226,15 @@ Coldharbour Lane you'll wait an hour. You could get shot on Angel Town and the
 response time would be measured in coffee breaks. But a bank manager whose
 oh-so-fragile ego got bruised by a man who wanted his own money? P1. Blue
 lights. A taxpayer-funded rapid response for a customer who had gone home to
-make an omelette, humming a melody.
+make an omelette, humming a tune.
 
-There was no reason for the 999 call. The situation was over. The "threat" was
-at home grating cheese. NatWest got a priority response that actual victims of
-actual crime in Brixton do not get, for an incident that was not a crime,
-involving a man who was not present, because the bank manager has no cock.
+There was no reason for the 999 call. The situation was over. The situation
+never began. The "threat" was at home grating cheese. NatWest got a priority
+response that actual victims of actual crime in Brixton do not get, for an
+incident that was not a crime, involving a man who was not present, because the
+bank manager has no cock.
 
-### False report liability
+### False Report Liability
 
 NatWest reported a man who had already left the premises. No crime was
 committed. No threat was made. It is not an offence to be angry at a fool.
@@ -177,7 +247,7 @@ Under English law:
 - **Perverting the course of justice (Common Law)** — if (ha!) the 999 call
   contains fabricated or embellished claims about Art's behaviour. Indictable,
   maximum life imprisonment. Art has two videos. The pigs have the 999
-  recording. Someone is **fucked**, and it's not Art.
+  recording.
 
 The 999 call recording is requested via [Met SAR](sar-metropolitan-police.eml).
 The recording will show what NatWest actually told police. The videos show what

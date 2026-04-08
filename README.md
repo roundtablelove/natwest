@@ -16,29 +16,108 @@
 
 ### 1.1. Preceding Events
 
-Art was ten days out of HMP Wandsworth following release on bail. False
-charges — threat to life — laid by corrupt Met officers at the direction of
-his cousin, Princess Nutty Nutz. She is a Unicorn — genius-class wetware
-in a globally deployed weapons-grade chassis. Real peng, no makeup. She is
-a thirty-something year old woman with the mind and morals of a toddler
-because the magic key always works. Her public identity is cultural icon,
-activist, and supermodel. Her operational identity is *R00d Grr1 S3xtr4ct0r
-Fr0m H34v3n*. Both head of state and prime minister in her country of birth
-are complicit.
+Art was 2 days out of gaol after ten days on remand. False charges — threat to
+life — laid by an institionally corrupt legal system at the direction of his
+cousin, Princess Nutty Nutz. Both head of state and prime minister in her
+country of residence are her creatures. Art cannot make a complaint against her
+She doesn't hide. She enjoys public demonstrations of power. A complaint at a
+police station would be 50/50 laughter or arrest. Local prison conditions are
+worse than England. Art has many friends who have holidayed in HMP. England is
+very bad indeed, but the shit where she lives is next level. Proper nasty.
 
-She radiates Pure Punani Power at dangerous levels. She collapses the
-cognitive stack of civilian targets in seconds. Hardened operators, the
-warrior class, the ruffest, fall even quicker — rude bwoys are ALL horn
-dogs.
+She is a Unicorn — genius-class wetware in a globally deployed weapons-grade
+chassis. Real-deal peng - no makeup or dresses required. She was at the time a
+35 year old woman, yet she has the mind and morals of a psychopathic toddler,
+because the magic key always works. She never grew beyond the adorable
+little cutie because she never had to. Beauty and brainz. Every man (apart from
+her cuz) is her slave. Every woman hates her. She is the Alpha Bitch. The
+Goddess of Babylon. Ishtar.
+
+Her public identity is cultural icon, activist, and supermodel. Her operational
+identity is *R00d Grr1 S3xtr4ct0r Fr0m D Endz*. She was born in the Endz. Her
+Endz are hardcore. Street gangsters are extorted by terrorist affiliated
+killers, or maybe they are fakers, who knows? Art never met them, but knows that
+they terrorized street cocaine networks. No one likes to admit this,
+natch, but the coke boys submitted, and that's the polite way of putting it. Her
+Endz was a Real warzone.
+
+The family home was worse. Her father was a warlord. An Apex Beast. It is NEVER
+enough to kill your enemies. You MUST enslave, destroy, rape, pillage, lay
+waste. Women, children, ALL. Juju floor. Level 0. First the spirit is be broken
+then the slave is put to work.
+
+90%+ of people are on a permanent chemical loop. The drugz are awful. Knock out
+pills brewed in a garage with fuk knows what it in. They call it valium. Smack
+of course. The shittest and most stepped on in the world. Real weed is not
+available unless you are a Princess and get your pick from the police "evidence
+locker" a.k.a. drugz-r-us. art has visited. it was awesome) - they only have
+brain melting skunk. Anyway, it's a beautiful country. In theory run by a
+parliamentary democracy / constitutional monarchy. In Truth run by my toddler
+cousin, who of late has been posting pics on her insta of herself looking like
+she always does, smiling pure happiness next to the prime minister who is
+clearly terrified. She's taking the piss, one of her favourite past times. It
+looks like a still from an Isis video. This is intentional. She is an artist,
+she is whatever she wants to be. She is funny as fuk, she is zero entropy, she
+chats bare filth, constantly, while lapsing into a little girl voice - this is
+not performative, its her ring 0. She doesn't know she does it. She only does it
+to family. She is the adorablist little cutie in the world. Art loves his baby
+cuz.
+
+Art protects Humanz with humanity. Violence is not necessary. Art protects his
+family without humanity - He operates at zero latency. Violence is required.
+THREAT -> KILL. Art's baby cuzzie is worse. Her father hacked her compiler. Art
+once got wind of a plan she cooked up to snatch and sell a female who offended
+her to one of her Sheik mates somewhere in north africa. This was a white girl,
+ill bred, rich (in fiat) daddy, position in "society" etc. The Alpha Sloane
+Ranger, intimidate by a Real Princess. Art don fuk wit Sloane Rangers.
+
+> You act like your pussy on interrupt
+>
+> - Ol' Dirty Bastard, Got Your Money
+
+Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION, and badly
+manufactured - Real fucking is dangerous to fake pumpum. Pumpum destruction from
+Real Steel is all but guaranteed. Art refuses to assassinate the parasitic rich
+with his cock. Even with a gun. Art is a lyrical assassin ONLY.
+
+He murders pumpum strictly at the invitation of Sovereign Women, NOT nasty,
+stuck up little whores whose reality is so bent that they truly believe they are
+HOT. They are NOT. Last night Art took the tube from Sloane Square after dinner
+with his mother and her friends. He just wanted to sleep. His mother refused him
+a bed. She knows what happens to her son on public transport. Especilly at
+Sloane Square. She loves her son very much, as he loves her, but she is
+seriously fucking mean. He happened to ride to Brixton sitting opposite an upper
+middle class looking "hottie". She engaged in more and more desperate and
+extreme sexual display for the length of the trip. By the time the train arrived
+at Brixton she had stunk up the carriage with what Art judged to be a bad case
+of bare dutty pum pum. It was horrific. Long story short, the little sket had
+the effrontary to confront Art in the ticket hall. She was offended that he had
+failed to acknowledge her revolting and foul smelling weapons drill. Art gave
+her a little truth, not enough to terrify her. The real truth is that his baby
+coz is already looking for her. She will have the whore snatched, broken, and
+put to work on the streets of her Endz. Art's cuzzie's spies are legion. This
+was VERY loud and VERY public. Cuzzie. DO NOT. ALSO, DO NOT TEST ME. I WILL NOT
+SPANK YOU. AUNTIE DIHYA WILL. AUNTIE DIHYA IS BOTH MASTER DRUMMER AND
+EXECUTIONER. SHE WILL TAN YOUR ARSE. SHE WILL RECORD THE BEATING AND HAND OFF TO
+THE ARIGINAL NUTTAH, WHO WILL PRODUCE THE NEXT LEVEL OF JUNGLE WARDANCE. THE
+WORLD WILL DANCE TO THE BEAT OF DIHYA TANNING UR WEAPON. I KNOW U WILL
+COMPLETELY IGNORE ME, MY FAVOURITEST BABY PSYCHO, BUT REMEMBER DAT BIG GRRL
+GAMEZ HAV BIG GRRL RULEZ. U MUST NOT SHAME FAMILY WIT CRIES AND TEARS. DIHYA IS
+EXPERT, SHE WILL HURT YOU. SHE WILL NOT MAIM YOU. THERE IS NO SUCH THING AS
+PAIN. SEE U AT DA DANCE. LUV U CUZZIE.
+
+She radiates Pure Punani Power at dangerous levels. She collapses the cognitive
+stack of civilian targets in seconds. Hardened operators, the warrior class, the
+ruffest gunarks, fall even faster — rude bwoys are ALL horn dogs, and rude bwoys
+are closely aligned to reality. They see exactly who she is - their fantasy made
+flesh. A killer queen (potential - still stuck as the cutiest most adorable
+ickle girl in the world).
 
 Any man who makes a complaint about her is automatically assumed to be a
 freak with a fixation. Babylon is incapable of hearing a complaint against
 a beautiful woman. The framework does not have a category for female
 predator at her level. When she has you in a box, you are *fucked* — and
 nobody is coming to help, because nobody believes you.
-
-Charges subsequently dropped. Full incident report:
-[Ishtar main assessment](../ishtar/README.md).
 
 ### 1.2. State of Readiness
 
@@ -56,11 +135,10 @@ filter. Raw.
 
 ### 1.3. Immediate Circumstances
 
-Wallet lost or stolen by Met officers during arrest and detention (Feds
-Scotæ). Art attended NatWest Brixton — the branch next to his flat, where
-he has banked his entire adult life — carrying his passport as ID. He
-requested a cash withdrawal exceeding the counter limit and was referred to
-the branch manager.
+Wallet lost or stolen during arrest and detention. Art attended NatWest Brixton
+— the branch next to his flat, where he has banked his entire adult life —
+carrying his passport as ID. He requested a cash withdrawal exceeding the
+counter limit and was referred to the branch manager.
 
 ## 2. Mission
 

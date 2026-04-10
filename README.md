@@ -255,7 +255,7 @@ government-issued ID, at the branch next to his home.
 
 Art pulled out his phone and started recording.
 
-<video src="PXL_20210921_085956653.mp4" controls></video>
+https://github.com/kingarrrt/natwest/raw/master/PXL_20210921_085956653.mp4
 
 **Transcript:**
 
@@ -305,7 +305,7 @@ He leaves under his own steam.
 
 ### 3.4. Evidence — Video 2 (withdrawal, stairs)
 
-<video src="PXL_20210921_090033002.mp4" controls></video>
+https://github.com/kingarrrt/natwest/raw/master/PXL_20210921_090033002.mp4
 
 Art walks down the stairs, humming. No anger. No menace. A man at peace.
 He says to a staff member in passing, extra light tone:

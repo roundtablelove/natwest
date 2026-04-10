@@ -35,7 +35,14 @@ demonstrations of power. A complaint at a police station would be 50/50 laughter
 or arrest. Art has many friends who have holidayed in HMP. This country is very
 bad indeed, but the shit where she lives is next level. Proper nasty.
 
-![Art post-release](IMG-20211014-WA0005.jpg)
+> [!NOTE]
+>
+> Art did NOT know his baby cuz was his baby cuz at the time. He thought she was
+> a nutter, a beautiful nutter who had reduced her whole being to her pumpum.
+> She gave him Real Steel when talking about filthy sex. He always knew she was
+> a virgin. He never knew she was four years old (mentally).
+>
+> ![Art post-release](IMG-20211014-WA0005.jpg)
 
 She is a Unicorn — genius-class wetware in a globally deployed weapons-grade
 chassis. Real-deal peng - no makeup or dresses required. She was at the time a

@@ -63,55 +63,71 @@ not performative, its her ring 0. She doesn't know she does it. She only does it
 to family. She is the adorablist little cutie in the world. Art loves his baby
 cuz.
 
-Art protects Humanz with humanity. Violence is not necessary. Art protects his
-family without humanity - He operates at zero latency. Violence is required.
-THREAT -> KILL. Art's baby cuzzie is worse. Her father hacked her compiler. Art
-once got wind of a plan she cooked up to snatch and sell a female who offended
-her to one of her Sheik mates somewhere in north africa. This was a white girl,
-ill bred, rich (in fiat) daddy, position in "society" etc. The Alpha Sloane
-Ranger, intimidate by a Real Princess. Art don fuk wit Sloane Rangers.
+Art protects Humanz with humanity. Violence is almost never necessary.
+
+Art protects his family without humanity. He operates at zero latency:
+
+```text
+THREAT -> KILL
+```
+
+Violence IS required. A public demonstration, *pour encourager les autres*, IS
+required. Art's baby cuzzie is *far* worse. Her father hacked her compiler to
+insert his beast warrior code to her ring 0. He saw she was a Unicorn, and made
+her into a bioweapon. Art once got wind of a plan she cooked up to snatch and
+sell a rival who offended her to one of her Sheik mates in the middle east. This
+was a white girl, ill bred, rich (in fiat) daddy, position in "society" etc. The
+Alpha Sloane Ranger, intimidated by a Real Princess, attempted a dominance play.
+Dilly bitch has no idea I saved her life. I did explain wat happens if she looks
+at my cuz again, but I made the threat from me. She 100% incapable of seeing how
+dangerous my baby cuzzie is.
+
+Art don fuk wit Sloane Rangers.
 
 > You act like your pussy on interrupt
 >
 > - Ol' Dirty Bastard, Got Your Money
 
-Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION, and badly
-manufactured - Real fucking is dangerous to fake pumpum. Pumpum destruction from
-Real Steel is all but guaranteed. Art refuses to assassinate the parasitic rich
-with his cock. Even with a gun. Art is a lyrical assassin ONLY.
+Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION, and zero
+quality control. Pumpum destruction from Real Steel is all but guaranteed. Art
+refuses to assassinate the parasitic rich with his cock.
 
-He murders pumpum strictly at the invitation of Sovereign Women, NOT nasty,
-stuck up little whores whose reality is so bent that they truly believe they are
-HOT. They are NOT. Last night Art took the tube from Sloane Square after dinner
-with his mother and her friends. He just wanted to sleep. His mother refused him
-a bed. She knows what happens to her son on public transport. Especilly at
-Sloane Square. She loves her son very much, as he loves her, but she is
-seriously fucking mean. He happened to ride to Brixton sitting opposite an upper
-middle class looking "hottie". She engaged in more and more desperate and
-extreme sexual display for the length of the trip. By the time the train arrived
-at Brixton she had stunk up the carriage with what Art judged to be a bad case
-of bare dutty pum pum. It was horrific. Long story short, the little sket had
-the effrontary to confront Art in the ticket hall. She was offended that he had
-failed to acknowledge her revolting and foul smelling weapons drill. Art gave
-her a little truth, not enough to terrify her. The real truth is that his baby
-coz is already looking for her. She will have the whore snatched, broken, and
-put to work on the streets of her Endz. Art's cuzzie's spies are legion. This
-was VERY loud and VERY public. Cuzzie. DO NOT. ALSO, DO NOT TEST ME. I WILL NOT
-SPANK YOU. AUNTIE DIHYA WILL. AUNTIE DIHYA IS BOTH MASTER DRUMMER AND
-EXECUTIONER. SHE WILL TAN YOUR ARSE. SHE WILL RECORD THE BEATING AND HAND OFF TO
-THE ARIGINAL NUTTAH, WHO WILL PRODUCE THE NEXT LEVEL OF JUNGLE WARDANCE. THE
-WORLD WILL DANCE TO THE BEAT OF DIHYA TANNING UR WEAPON. I KNOW U WILL
-COMPLETELY IGNORE ME, MY FAVOURITEST BABY PSYCHO, BUT REMEMBER DAT BIG GRRL
-GAMEZ HAV BIG GRRL RULEZ. U MUST NOT SHAME FAMILY WIT CRIES AND TEARS. DIHYA IS
-EXPERT, SHE WILL HURT YOU. SHE WILL NOT MAIM YOU. THERE IS NO SUCH THING AS
-PAIN. SEE U AT DA DANCE. LUV U CUZZIE.
+Even with a gun. Art is a lyrical assassin ONLY. He murders pumpum strictly at
+the invitation of Sovereign Women, NOT nasty, stuck up little whores whose
+reality is so bent that they truly believe they are HOT. They are NOT. Last
+night Art took the tube from Sloane Square after dinner with his mother and her
+friends. He just wanted to sleep. His mother refused him a bed. She knows what
+happens to her son on public transport. Especilly at Sloane Square. She loves
+her son very much, as he loves her, but she is seriously fucking mean. He
+happened to ride to Brixton sitting opposite an upper middle class looking
+"hottie". She engaged in more and more desperate and extreme sexual display for
+the length of the trip. By the time the train arrived at Brixton she had stunk
+up the carriage with what Art judged to be a bad case of bare dutty pum pum. It
+was horrific. Long story short, the little sket had the effrontary to confront
+Art in the ticket hall. She was offended that he had failed to acknowledge her
+revolting and foul smelling weapons drill.
 
-She radiates Pure Punani Power at dangerous levels. She collapses the cognitive
-stack of civilian targets in seconds. Hardened operators, the warrior class, the
-ruffest gunarks, fall even faster — rude bwoys are ALL horn dogs, and rude bwoys
-are closely aligned to reality. They see exactly who she is - their fantasy made
-flesh. A killer queen (potential - still stuck as the cutiest most adorable
-ickle girl in the world).
+Art gave her a little truth, ago assassination, but not enough to terrify her.
+The Truth is that his baby coz is already looking for her. Baby cuz owns
+ALL street boys. Deal is standard. Dey give her intel. She gives them nothing.
+Maybe a sniff of the pumpum if they are VERY good boys. She KNOWS. She will have
+the whore snatched, broken, and put to work on the streets of her Endz. Art's
+cuzzie's spies are legion. This was VERY loud and VERY public. Cuzzie. DO NOT.
+ALSO, DO NOT TEST ME. I WILL NOT SPANK YOU. AUNTIE DIHYA WILL. AUNTIE DIHYA IS
+BOTH MASTER DRUMMER AND EXECUTIONER. SHE WILL TAN YOUR ARSE. SHE WILL RECORD THE
+BEATING AND HAND OFF TO THE ARIGINAL NUTTAH, WHO WILL PRODUCE THE NEXT LEVEL OF
+JUNGLE WARDANCE. THE WORLD WILL DANCE TO THE BEAT OF DIHYA TANNING UR WEAPON. I
+KNOW U WILL COMPLETELY IGNORE ME, MY FAVOURITEST BABY PSYCHO, BUT REMEMBER DAT
+BIG GRRL GAMEZ HAV BIG GRRL RULEZ. U MUST NOT SHAME FAMILY WIT CRIES AND TEARS.
+DIHYA IS EXPERT, SHE WILL HURT YOU. SHE WILL NOT MAIM YOU. THERE IS NO SUCH
+THING AS PAIN. SEE U AT DA DANCE. LUV U CUZZIE.
+
+Art's favourite ickle girl radiates Pure Punani Power at dangerous levels. She
+collapses the cognitive stack of civilian targets in seconds. Hardened
+operators, the warrior class, the ruffest gunarks, fall even faster — rude bwoys
+are ALL horn dogs, and rude bwoys are closely aligned to reality. They see
+exactly who she is - their fantasy made flesh. A killer queen (potential - still
+stuck as the cutiest most adorable ickle girl in the world).
 
 Any man who makes a complaint about her is automatically assumed to be a
 freak with a fixation. Babylon is incapable of hearing a complaint against
@@ -154,7 +170,7 @@ gaol, unmasked, operating without a filter, and saw power.
 > When they see you as a king just be aware of all the envy and the
 > jealousy it brings.
 >
-> — Cambatta, nXggXr chrXst
+> — Cambatta, [nXggXr chrXst](https://www.youtube.com/watch?v=hHJ1AGCDkjs&list=RDhHJ1AGCDkjs)
 
 The manager, as a servant of Babylon, has an unpatched bug in core logic
 that has existed since Genesis. He sees a King and his borrowed authority is
@@ -235,7 +251,7 @@ government-issued ID, at the branch next to his home.
 
 Art pulled out his phone and started recording.
 
-<video src="https://github.com/kingarrrt/natwest/releases/download/v1.0.0/PXL_20210921_085956653.mp4" controls></video>
+<video src="PXL_20210921_085956653.mp4" controls></video>
 
 **Transcript:**
 
@@ -285,7 +301,7 @@ He leaves under his own steam.
 
 ### 3.4. Evidence — Video 2 (withdrawal, stairs)
 
-<video src="https://github.com/kingarrrt/natwest/releases/download/v1.0.0/PXL_20210921_090033002.mp4" controls></video>
+<video src="PXL_20210921_090033002.mp4" controls></video>
 
 Art walks down the stairs, humming. No anger. No menace. A man at peace.
 He says to a staff member in passing, extra light tone:

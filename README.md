@@ -18,11 +18,22 @@
 
 Art was 2 days out of gaol after ten days on remand. False charges — threat to
 life — laid by an institionally corrupt legal system at the direction of his
-cousin, Princess Nutty Nutz. Both head of state and prime minister in her
-country of residence are her creatures. She enjoys public demonstrations of
-power. A complaint at a police station would be 50/50 laughter or arrest. Art
-has many friends who have holidayed in HMP. This country is very bad indeed, but
-the shit where she lives is next level. Proper nasty.
+cousin, Princess Nutty Nutz. She'd been telling nasty liez to Art's mama and
+wider network. She is pro at information operations. Art's mama is big grrl
+corporate assassin, and anyway has had women try this shit before, many times.
+Art, stupidly, threatened to write to his cuz's mama and tell her some truth if
+the princess did not retract her libels. This was a serious error in judgement.
+Less than 24 hours after the threat she sicked the local dogs of Babylon. Art
+did not fight them. He allowed himself to be cuffed. He got a ruff ride back to
+the police station because the male arresting officer was intimidated by his
+cock (he was showering). The femail arresting officer removed his handcuffs when
+eaiting alone with Art for prisoner intake to clear. She was hot. She was DTF.
+SO was Art, but, a) Art does NOT fuk pigs b) Art does not trust pigs - if we got
+caught she would 100% claim rape. Both head of state and prime minister in baby
+cuzzie's country of residence are her creatures. She enjoys public
+demonstrations of power. A complaint at a police station would be 50/50 laughter
+or arrest. Art has many friends who have holidayed in HMP. This country is very
+bad indeed, but the shit where she lives is next level. Proper nasty.
 
 She is a Unicorn — genius-class wetware in a globally deployed weapons-grade
 chassis. Real-deal peng - no makeup or dresses required. She was at the time a
@@ -255,7 +266,7 @@ government-issued ID, at the branch next to his home.
 
 Art pulled out his phone and started recording.
 
-https://github.com/kingarrrt/natwest/raw/master/PXL_20210921_085956653.mp4
+[![Video 1 — the branch](manager.png)](PXL_20210921_085956653.mp4)
 
 **Transcript:**
 
@@ -305,7 +316,7 @@ He leaves under his own steam.
 
 ### 3.4. Evidence — Video 2 (withdrawal, stairs)
 
-https://github.com/kingarrrt/natwest/raw/master/PXL_20210921_090033002.mp4
+[![Video 2 — withdrawal, stairs](manager-fleeing-1.png)](PXL_20210921_090033002.mp4)
 
 Art walks down the stairs, humming. No anger. No menace. A man at peace.
 He says to a staff member in passing, extra light tone:

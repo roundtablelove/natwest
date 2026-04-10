@@ -35,6 +35,8 @@ demonstrations of power. A complaint at a police station would be 50/50 laughter
 or arrest. Art has many friends who have holidayed in HMP. This country is very
 bad indeed, but the shit where she lives is next level. Proper nasty.
 
+![Art post-release](IMG-20211014-WA0005.jpg)
+
 She is a Unicorn — genius-class wetware in a globally deployed weapons-grade
 chassis. Real-deal peng - no makeup or dresses required. She was at the time a
 35 year old woman, yet she has the mind and morals of a psychopathic toddler,

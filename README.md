@@ -39,11 +39,12 @@ bad indeed, but the shit where she lives is next level. Proper nasty.
 >
 > Art did NOT know his baby cuz was his baby cuz at the time. He thought she was
 > a nutter, a beautiful nutter who had reduced her whole being to her pumpum.
-> She gave him Real Steel when talking about filthy sex. He always knew she was
-> a virgin. He never knew she was four years old (mentally). Here he refers to
-> her as Queen Nutz. This is an error. She is not a queen. She is a badly
-> spoiled princess, a nasty little bitch. She cares nothing for lives ruined by
-> her "fun and games". She MUST be chained.
+> Said pumpum was waved in Art's face for several years. Art's girlfriends ALL
+> hate his baby cuz. She gave him Real Steel when talking about filthy sex. He
+> always knew she was a virgin. He never knew she was four years old (mentally).
+> Here he refers to her as Queen Nutz. This is an error. She is not a queen. She
+> is a badly spoiled princess, a nasty little bitch. She cares nothing for lives
+> ruined by her "fun and games". She MUST be chained.
 >
 > ![Art post-release](IMG-20211014-WA0005.jpg)
 

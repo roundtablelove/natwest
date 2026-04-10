@@ -19,19 +19,19 @@
 Art was 2 days out of gaol after ten days on remand. False charges — threat to
 life — laid by an institionally corrupt legal system at the direction of his
 cousin, Princess Nutty Nutz. Both head of state and prime minister in her
-country of residence are her creatures. Art cannot make a complaint against her
-She doesn't hide. She enjoys public demonstrations of power. A complaint at a
-police station would be 50/50 laughter or arrest. Local prison conditions are
-worse than England. Art has many friends who have holidayed in HMP. England is
-very bad indeed, but the shit where she lives is next level. Proper nasty.
+country of residence are her creatures. She enjoys public demonstrations of
+power. A complaint at a police station would be 50/50 laughter or arrest. Art
+has many friends who have holidayed in HMP. This country is very bad indeed, but
+the shit where she lives is next level. Proper nasty.
 
 She is a Unicorn — genius-class wetware in a globally deployed weapons-grade
 chassis. Real-deal peng - no makeup or dresses required. She was at the time a
 35 year old woman, yet she has the mind and morals of a psychopathic toddler,
-because the magic key always works. She never grew beyond the adorable
-little cutie because she never had to. Beauty and brainz. Every man (apart from
-her cuz) is her slave. Every woman hates her. She is the Alpha Bitch. The
-Goddess of Babylon. Ishtar.
+because. She never grew beyond the adorable little cutie because she never had
+to -  the magic key always works. Beauty and brainz.
+
+Every man (apart from her cuz, and she pushed *hard*) is her slave. Every woman
+hates her. She is the Alpha Bitch. The Goddess of Babylon. Ishtar.
 
 Her public identity is cultural icon, activist, and supermodel. Her operational
 identity is *R00d Grr1 S3xtr4ct0r Fr0m D Endz*. She was born in the Endz. Her
@@ -42,16 +42,16 @@ natch, but the coke boys submitted, and that's the polite way of putting it. Her
 Endz was a Real warzone.
 
 The family home was worse. Her father was a warlord. An Apex Beast. It is NEVER
-enough to kill your enemies. You MUST enslave, destroy, rape, pillage, lay
-waste. Women, children, ALL. Juju floor. Level 0. First the spirit is be broken
-then the slave is put to work.
+enough to kill your enemies. You MUST enslave, destroy, rape, pillage. Women,
+children, ALL. Juju floor. Level 0. First the spirit is be broken then the slave
+is put to work.
 
-90%+ of people are on a permanent chemical loop. The drugz are awful. Knock out
-pills brewed in a garage with fuk knows what it in. They call it valium. Smack
-of course. The shittest and most stepped on in the world. Real weed is not
-available unless you are a Princess and get your pick from the police "evidence
-locker" a.k.a. drugz-r-us. art has visited. it was awesome) - they only have
-brain melting skunk. Anyway, it's a beautiful country. In theory run by a
+90%+ of people in the Endz are on a permanent chemical loop. The drugz are
+awful. Knock out pills brewed in a garage with fuk knows what it in. They call
+it valium. Smack of course. The shittest and most stepped on in the world. Real
+weed is not available - they only have brain melting skunk. Princess Nutz has
+her pick from the police "evidence locker" a.k.a. Drugz-R-Us. Art has visited.
+It was *awesome*. Anyway, it's a beautiful country. In theory run by a
 parliamentary democracy / constitutional monarchy. In Truth run by my toddler
 cousin, who of late has been posting pics on her insta of herself looking like
 she always does, smiling pure happiness next to the prime minister who is
@@ -73,41 +73,44 @@ THREAT -> KILL
 
 Violence IS required. A public demonstration, *pour encourager les autres*, IS
 required. Art's baby cuzzie is *far* worse. Her father hacked her compiler to
-insert his beast warrior code to her ring 0. He saw she was a Unicorn, and made
+insert his beast warrior code to her ring 0. He saw she was a Unicorn and made
 her into a bioweapon. Art once got wind of a plan she cooked up to snatch and
-sell a rival who offended her to one of her Sheik mates in the middle east. This
-was a white girl, ill bred, rich (in fiat) daddy, position in "society" etc. The
-Alpha Sloane Ranger, intimidated by a Real Princess, attempted a dominance play.
-Dilly bitch has no idea I saved her life. I did explain wat happens if she looks
-at my cuz again, but I made the threat from me. She 100% incapable of seeing how
-dangerous my baby cuzzie is.
+sell a rival who offended her to one of her Sheik mates who gets off by cutting
+the throat of the woman he is analy raping. He lives for the death spasms. Art
+wants him dead, but would need to take an army. Not yet. This was a white girl,
+ill bred, rich (in fiat) daddy, position in "society" etc. The Alpha Sloane
+Ranger, intimidated by a Real Princess, attempted a dominance play. Dilly bitch
+has no idea I saved her life. I did explain wat happens if she looks at my cuz
+again, but I made the threat from me. She 100% incapable of seeing how dangerous
+my baby cuzzie is.
 
 Art don fuk wit Sloane Rangers.
 
 > You act like your pussy on interrupt
 >
-> - Ol' Dirty Bastard, Got Your Money
+> - Ol' Dirty Bastard, [Got Your Money](https://www.youtube.com/watch?v=XXTzm5GtqVo)
 
 Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION, and zero
 quality control. Pumpum destruction from Real Steel is all but guaranteed. Art
-refuses to assassinate the parasitic rich with his cock.
+refuses to assassinate the parasitic rich with his cock. He has never had a
+sexual disease because he ONLY fuks nice girls. No whores. Not ever.
 
-Even with a gun. Art is a lyrical assassin ONLY. He murders pumpum strictly at
-the invitation of Sovereign Women, NOT nasty, stuck up little whores whose
-reality is so bent that they truly believe they are HOT. They are NOT. Last
-night Art took the tube from Sloane Square after dinner with his mother and her
-friends. He just wanted to sleep. His mother refused him a bed. She knows what
-happens to her son on public transport. Especilly at Sloane Square. She loves
-her son very much, as he loves her, but she is seriously fucking mean. He
-happened to ride to Brixton sitting opposite an upper middle class looking
-"hottie". She engaged in more and more desperate and extreme sexual display for
-the length of the trip. By the time the train arrived at Brixton she had stunk
-up the carriage with what Art judged to be a bad case of bare dutty pum pum. It
-was horrific. Long story short, the little sket had the effrontary to confront
-Art in the ticket hall. She was offended that he had failed to acknowledge her
-revolting and foul smelling weapons drill.
+Art is a lyrical assassin ONLY. He murders pumpum strictly at the invitation of
+Sovereign Women, NOT nasty, stuck up little whores whose reality is so bent that
+they truly believe they are HOT. They are NOT. Last night Art took the tube from
+Sloane Square after dinner with his mother and her friends. He just wanted to
+sleep. His mother refused him a bed. She knows what happens to her son on public
+transport. Especilly at Sloane Square. She loves her son very much, as he loves
+her, but she is seriously fucking mean. He happened to ride to Brixton sitting
+opposite an upper middle class looking "hottie". She engaged in more and more
+desperate and extreme sexual display for the length of the trip. By the time the
+train arrived at Brixton she had stunk up the carriage with what Art judged to
+be a bad case of bare dutty pum pum. It was horrific. Long story short, the
+little sket had the effrontary to confront Art in the ticket hall. She was
+offended that he had failed to acknowledge her revolting and foul smelling
+weapons drill.
 
-Art gave her a little truth, ago assassination, but not enough to terrify her.
+Art gave her a little truth, ego assassination only, not enough to terrify her.
 The Truth is that his baby coz is already looking for her. Baby cuz owns
 ALL street boys. Deal is standard. Dey give her intel. She gives them nothing.
 Maybe a sniff of the pumpum if they are VERY good boys. She KNOWS. She will have

@@ -86,14 +86,15 @@ my baby cuzzie is.
 
 Art don fuk wit Sloane Rangers.
 
-> You act like your pussy on interrupt
+> You give me your number. I call you up. You act like your pussy on interrupt.
 >
 > - Ol' Dirty Bastard, [Got Your Money](https://www.youtube.com/watch?v=XXTzm5GtqVo)
 
-Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION, and zero
-quality control. Pumpum destruction from Real Steel is all but guaranteed. Art
-refuses to assassinate the parasitic rich with his cock. He has never had a
-sexual disease because he ONLY fuks nice girls. No whores. Not ever.
+Posh totty has no pumpum. Fake. Not Real. Raises ERR_NO_SATISFACTION. Has zero
+quality control - inferior genetics. Pumpum destruction from Real Steel is all
+but guaranteed. Art refuses to assassinate the parasitic rich with his cock. He
+has never had a sexual disease because he ONLY fuks nice girls. No whores. Not
+ever.
 
 Art is a lyrical assassin ONLY. He murders pumpum strictly at the invitation of
 Sovereign Women, NOT nasty, stuck up little whores whose reality is so bent that

@@ -17,6 +17,13 @@ complainant with "Are you filming me?" delivered in a parody of street tone. A
 dominance display, borrowed from a culture he does not belong to, deployed on
 behalf of an employer whose manager had already fled.
 
+This defect is more severe than the manager's failure
+([BUG-002](BUG-002-incomplete-threat-assessment.md)). The manager at least
+performed a correct classification before his firmware crashed. The fake rude
+bwoy had even more information — he had just watched his boss see something
+terrifying and run — and his firmware concluded that he should try his own
+dickslap. He has no cock. The dickslap requires a dick.
+
 He is not street. He is a civilian in a lanyard running interference for
 Babylon. A fake rude bwoy.
 
@@ -49,20 +56,37 @@ RESPONSE:  Engage with the complaint, or stay silent.
 
 ```
 SITUATION: Manager has fled. Customer is calm. Customer is recording.
+INPUT:     Sees anger. Hears anger. Sees boss flee.
 ASSESS:    [NONE — no assessment performed]
-RESPONSE:  Affect street tone. Challenge recording. Attempt dominance
-           display on behalf of absent manager.
+CONCLUDE:  "I am bigger than the man my boss just ran from."
+RESPONSE:  Affect street tone. Challenge recording. Attempt dickslap.
+PREREQ:    Requires dick.
+CHECK:     No dick found.
 RESULT:    Failed. Complainant responds: "Of course I am."
 ```
 
 ## Root Cause
 
-The staff member's firmware attempted to load a threat posture it does not
-possess. Street tone is not a costume. It is forged in an environment where
-posture has consequences. A real rude bwoy does not ask "are you filming me?"
-— he either doesn't care or he takes the phone. This was a civilian borrowing
-the aesthetics of a culture he was never tested by, to project authority he
-does not have, on behalf of an institution that had already demonstrated its
+This defect is worse than the manager's ([BUG-002](BUG-002-incomplete-threat-assessment.md)).
+The manager at least ran a correct classification before panicking. The fake
+rude bwoy performed no classification at all. He saw and heard anger — his
+manager's fear response was still in the air, the man who provoked it was still
+in the room — and his firmware concluded that this was a good moment to attempt
+a dickslap of his own.
+
+He saw his boss identify a wolf and flee. Then he walked up to the wolf and
+bared his teeth. He has no teeth. He has no cock. The dickslap manoeuvre
+requires a dick. He attempted to assert dominance over a man that his own
+manager — who outranks him — had just demonstrated he could not handle. The
+manager at least had the survival instinct to run. This one has neither the
+hardware to fight nor the firmware to flee. A catastrophic failure at every
+level of the stack.
+
+Street tone is not a costume. It is forged in an environment where posture has
+consequences. A real rude bwoy does not ask "are you filming me?" — he either
+doesn't care or he takes the phone. This was a civilian borrowing the
+aesthetics of a culture he was never tested by, to project authority he does
+not have, on behalf of an institution that had already demonstrated its
 authority is worthless under pressure.
 
 The complainant's assessment:

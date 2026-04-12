@@ -147,9 +147,56 @@ NatWest, the IOPC may hold:
 | Complaints about arrests arising from NatWest Brixton Road calls | IOPC records |
 | Investigations into disproportionate response | IOPC records |
 
-## 4. Hypotheses
+## 4. Known Incidents
 
-### 4.1. Isolated Incident
+### 4.1. Mr C — Arrested in Own Bank, Photo ID Dispute
+
+```
+   Witness: Mr C (details pending — contact not yet established)
+  Location: Bank branch in Brixton (branch to be confirmed)
+   Allegation: Customer arrested inside bank because staff claimed he did
+               not match his own photo ID. He did.
+    Status: AWAITING CONTACT
+```
+
+A known associate of the complainant was arrested inside a bank branch in
+Brixton after staff claimed he did not match his own photograph on his
+identification document. He did match. He was arrested anyway.
+
+This is a direct instance of the pattern under investigation. The same
+pipeline:
+
+```
+CLASSIFY: Customer does not look right.
+ASSESS:   [NONE — or conclusion predetermined]
+RESPONSE: Call police.
+OUTCOME:  Arrested. In his own bank. For looking like himself.
+```
+
+If this occurred at NatWest Brixton Road, it is a second confirmed firing of
+[BUG-004](bugs/BUG-004-no-dangerous-but-lawful-branch.md) — except worse. In
+the complainant's case (IR-20210921), at least an interaction occurred. In Mr
+C's case, the classification itself was false. He matched his photo. They said
+he didn't. This is not a ring 0 panic. This is either incompetence or
+fabrication.
+
+**Details pending.** Mr C does not answer his phone. He will be contacted and
+this section updated with:
+
+- Full name (with consent)
+- Date of incident
+- Which bank / which branch
+- Whether he was charged
+- Outcome
+- Whether he has video, witnesses, or documentation
+
+> Mr C. Call me.
+
+---
+
+## 5. Hypotheses
+
+### 5.1. Isolated Incident
 
 The incident on 21 September 2021 was a one-off failure by one manager on one
 day. The defects are personal to that manager. The branch does not have a
@@ -159,7 +206,7 @@ systemic problem.
 rarely, in line with comparable branches, and that calls result in justified
 police action.
 
-### 4.2. Systemic Pattern — Operational
+### 5.2. Systemic Pattern — Operational
 
 The branch has a culture of calling 999 as a first resort when staff feel
 uncomfortable. The defects identified in [BUG-004](bugs/BUG-004-no-dangerous-but-lawful-branch.md)
@@ -173,7 +220,7 @@ not crimes.
 subsequent charge and conviction, and a pattern of calls made after the customer
 has left or where no offence was committed.
 
-### 4.3. Systemic Pattern — Discriminatory
+### 5.3. Systemic Pattern — Discriminatory
 
 As 4.2, but with a demographic skew. The branch disproportionately targets
 Black customers, young men, or people who do not present as middle-class. The
@@ -183,7 +230,7 @@ profiling.
 **If true:** The data will show a demographic pattern in the subjects of 999
 calls that does not match the branch's customer demographics.
 
-## 5. Actions
+## 6. Actions
 
 | # | Action | Status |
 | :--- | :--- | :--- |
@@ -195,8 +242,9 @@ calls that does not match the branch's customer demographics.
 | 6 | Compare NatWest Brixton Road 999 call rate with comparable branches | BLOCKED (#1) |
 | 7 | Identify other affected customers | BLOCKED (#1, #2) |
 | 8 | If pattern confirmed — refer to Equality and Human Rights Commission | BLOCKED (#5) |
+| 9 | Contact Mr C — obtain incident details, dates, branch, outcome | PENDING |
 
-## 6. Why This Matters
+## 7. Why This Matters
 
 The complainant was not arrested. He had video. He had a home next door. He
 knew his rights.

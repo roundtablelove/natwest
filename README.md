@@ -250,6 +250,7 @@ interest.
 | 4 | Compare 999 recording with video evidence | #1, #2 | BLOCKED |
 | 5 | Civil action against NatWest | #1, #2 | PENDING |
 | 6 | FCA complaint if NatWest response unsatisfactory | #5 | PENDING |
+| 7 | **[Pattern enquiry](ENQUIRY.md)** — establish whether NatWest Brixton Road has made false reports before, whether people have been arrested, charged, or convicted | — | OPEN |
 
 ---
 
@@ -286,6 +287,7 @@ interest.
 - [Formal complaint to NatWest](complaint-natwest.eml)
 - [Subject Access Request — Metropolitan Police](sar-metropolitan-police.eml)
 - [Subject Access Request — NatWest](sar-natwest.eml)
+- [Pattern Enquiry — Has this happened before?](ENQUIRY.md)
 
 ## Defect Reports
 

@@ -26,7 +26,7 @@ After the complainant had left and gone home (next door), NatWest staff called
 minutes. No crime had been committed. No threat had been made. The complainant
 was making breakfast.
 
-Six defects have been identified. See [Section 6 — Defect Register](#6-defect-register).
+Seven defects have been identified. See [Section 6 — Defect Register](#6-defect-register).
 
 ---
 
@@ -199,6 +199,7 @@ violent crime in Brixton do not receive.
 | BUG-004 | CRITICAL | No logic branch for "dangerous but lawful" | [BUG-004](bugs/BUG-004-no-dangerous-but-lawful-branch.md) |
 | BUG-005 | HIGH | Disproportionate priority dispatch for non-crime | [BUG-005](bugs/BUG-005-disproportionate-priority-dispatch.md) |
 | BUG-006 | CRITICAL | Ring 0 panic override produces false report | [BUG-006](bugs/BUG-006-ring0-panic-override.md) |
+| BUG-007 | MEDIUM | Fake rude bwoy intimidation display | [BUG-007](bugs/BUG-007-fake-rude-bwoy.md) |
 
 ---
 
@@ -294,3 +295,4 @@ interest.
 - [BUG-004 — No logic branch for "dangerous but lawful"](bugs/BUG-004-no-dangerous-but-lawful-branch.md)
 - [BUG-005 — Disproportionate priority dispatch](bugs/BUG-005-disproportionate-priority-dispatch.md)
 - [BUG-006 — Ring 0 panic override produces false report](bugs/BUG-006-ring0-panic-override.md)
+- [BUG-007 — Fake rude bwoy intimidation display](bugs/BUG-007-fake-rude-bwoy.md)

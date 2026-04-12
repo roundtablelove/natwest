@@ -288,6 +288,7 @@ interest.
 - [Subject Access Request — Metropolitan Police](sar-metropolitan-police.eml)
 - [Subject Access Request — NatWest](sar-natwest.eml)
 - [Pattern Enquiry — Has this happened before?](ENQUIRY.md)
+- [Legal Strategy — No solicitor required](LEGAL-STRATEGY.md)
 
 ## Defect Reports
 

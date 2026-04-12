@@ -289,6 +289,8 @@ interest.
 - [Subject Access Request — NatWest](sar-natwest.eml)
 - [Pattern Enquiry — Has this happened before?](ENQUIRY.md)
 - [Legal Strategy — No solicitor required](LEGAL-STRATEGY.md)
+- [Blitz Plan — Full spectrum campaign](BLITZ-PLAN.md)
+- [Settlement Analysis — What's it worth](SETTLEMENT.md)
 
 ## Defect Reports
 
